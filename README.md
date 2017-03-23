@@ -1,1 +1,0 @@
-# homepage_animation_1
